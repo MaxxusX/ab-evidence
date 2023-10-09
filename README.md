@@ -1,7 +1,7 @@
 # seems SOME people need a reminder. ab is a pedo.
 
 ## errmm what is a gatcha heat?
-gatcha is a shitty dress up game, you can use the studio to create scenes. Usually, children who are obviously minors, sexualize their characters and make them go in 'heat'. Heat as in the kind cats goes in when they're not neutered. Basically, their characters get really horny, sometimes to the point where they can't walk; and the only way to cure it is to have sex. This concept was created as a dumb fucking excuse to make porn with chibi character.
+gatcha is a shitty dress up game, you can use the studio to create scenes. Usually, children who are obviously minors, sexualize their characters and make them go in 'heat'. Heat as in the kind cats goes in when they're not neutered. Basically, their characters get really horny, and have sex or do other sexual things. This concept was created as a dumb fucking excuse to make porn with chibi character.
 
 # evidence against [@AbHateCringeExe](https://twitter.com/abhatecringeexe) / [@AbHateCringe2](https://twitter.com/AbHateCringe2) / [@ABbahhFr](https://twitter.com/ABbahhFr)
 ### he is back at it again, under [@ABbahhFr](https://twitter.com/ABbahhFR)
