@@ -14,4 +14,5 @@ gatcha is a shitty dress up game, you can use the studio to create scenes. Usual
 
 
 ## some of Abs supporters:
-[@yuhbahx](https://twitter.com/yuhbahx) who im pretty sure SAW most of the evidence, and was hating on Ab, but it seems she now supports him?
+[yuh :3](https://twitter.com/yuhbahx) who im pretty sure SAW most of the evidence, and was hating on Ab, but it seems she now supports him?
+[Alice/Sharky🦈 ٭ 🎃★](https://twitter.com/mlpnspfansfrr)
