@@ -11,3 +11,7 @@ gatcha is a shitty dress up game, you can use the studio to create scenes. Usual
 
 ### check out [this folder](https://github.com/MaxxusX/ab-evidence/tree/main/abhatecringeexe-evidence) for evidence
 ### more coming soon.
+
+
+## some of Abs supporters:
+[@yuhbahx](https://twitter.com/yuhbahx) who im pretty sure SAW most of the evidence, and was hating on Ab, but it seems she now supports him?
