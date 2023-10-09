@@ -7,4 +7,7 @@ gatcha is a shitty dress up game, you can use the studio to create scenes. Usual
 # he is back at it again, under [@ABbahhFr](https://twitter.com/ABbahhFR)
 **he also seems to have many supporters.**
 
-Ab is NOT 15. he says he has been 15 for more than a year now. also he censors idiot. literally 9.
+## Ab is NOT 15. he says he has been 15 for more than a year now. also he censors idiot. literally 9.
+
+### check out [this folder](https://github.com/MaxxusX/ab-evidence/tree/main/abhatecringeexe-evidence) for evidence
+### more coming soon.
